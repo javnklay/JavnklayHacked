@@ -1,1 +1,1 @@
-# l-l-g
+# Bu program JAVNKLAY tarafından yapılmış,editlenmiştir.
